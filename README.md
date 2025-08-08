@@ -1,4 +1,4 @@
-## Hi, I'm Eoin
+## Hi, I'm Eóin
 
 Building.
 
